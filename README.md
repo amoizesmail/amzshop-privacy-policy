@@ -1,0 +1,1 @@
+# amzshop-privacy-policy
